@@ -1,2 +1,0 @@
-# hidalgoautoservice.com
-hidalgoautoservice.com
